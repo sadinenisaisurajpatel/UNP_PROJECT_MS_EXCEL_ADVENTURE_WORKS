@@ -12,4 +12,4 @@ Key Highlights:
 
 Excel File Link : https://docs.google.com/spreadsheets/d/180nf7ioi5DDhMAhlYA2gCdiukb7bbSin/edit?usp=sharing&ouid=108958671084574710644&rtpof=true&sd=true
 
-PDF Link : https://drive.google.com/file/d/1PjU3IIkVCY4v15_JoqJzEwTT2wqKqK4S/view?usp=sharing
+PDF Link : https://drive.google.com/file/d/1q3AAZgrou_0a6H9LITJ0y-z9lWvK0d-k/view?usp=sharing
